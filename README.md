@@ -10,4 +10,6 @@ AAAAA 2222222222
 ~
 :( n ta mais perguntando afeeee
 
-VER 1.0.4
+agora vai!!!!!!!!1
+
+VER 1.0.5
